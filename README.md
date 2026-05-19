@@ -72,5 +72,5 @@ I am interested in remote roles such as:
 ## Contact
 
 Email: rayzenros@gmail.com  
-LinkedIn: Add your LinkedIn link here  
+LinkedIn: https://www.linkedin.com/in/fakhri-ahmad-512825319  
 GitHub: https://github.com/fakhrih23-piksel
